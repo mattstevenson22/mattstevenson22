@@ -1,1 +1,1 @@
-Hi, I'm Matt. Studying at Imperial College London currently. 
+Hi, I'm Matt. I'm studying at Imperial College London currently. 
